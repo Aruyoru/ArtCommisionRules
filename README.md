@@ -33,7 +33,7 @@ For all commissions, if you really need a refund because, for example, something
 
 ## Work In Progress (WIP)
 
-You can always check my commission progress on my Twitter. There you can check if I have finished the sketching, lineart, flatcolour, shading, and effects stages of a commission.
+You can always check my commission progress on my [Twitter](https://twitter.com/AruruYoru). There you can check if I have finished the sketching, lineart, flatcolour, shading, and effects stages of a commission.
 
 You can also ask me directly for them if you really need an update on the progress. I would definetely appreciate consideration on this to avoid spamming. 
 
