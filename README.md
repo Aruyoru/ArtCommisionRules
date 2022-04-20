@@ -16,7 +16,7 @@ I reserve the right to change this file without warning, although the changes ar
 
 I will only start a commission after payment has been received.
 
-Preferably I accept KoFi donations or Stripe, I also 
+Preferably I accept [Ko-Fi donations](https://ko-fi.com/aruyoru) or Stripe invoices, I also 
 support PayPal but only as a last option. 
 
 ## Deadlines and waiting times
